@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Soudip
-- 👀 I’m interested in Software Development, Machine Learning, and Software Testing
+- 👀 I’m interested in Business Analysis, Strategic Development, Banking Finance and Insurance Sector Jobs
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
